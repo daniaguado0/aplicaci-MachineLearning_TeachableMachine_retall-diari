@@ -1,0 +1,1 @@
+# aplicaci-MachineLearning_TeachableMachine_retall-diari
